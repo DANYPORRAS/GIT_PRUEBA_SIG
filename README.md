@@ -6,4 +6,3 @@
 - 💬 Ask me about MANEJO DE SIG
 - 📫 How to reach me: DANYPORRAS
 - 😄 Pronouns: HE
-- ⚡ Fun fact: PROGRAMADOR
